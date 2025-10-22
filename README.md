@@ -13,7 +13,7 @@ I'm @Nibedita-Saiba, a passionate Computer Science Engineering student from Indi
 
 - 📩 2403031460334@paruluniversity.ac.in
 - saibanibedita@gmail.com
-- 🌐www.linkedin.com/in/nibedita-saiba-3ab576351
+- 🌐 www.linkedin.com/in/nibedita-saiba-3ab576351
 - https://www.instagram.com/nibedita_saiba?igsh=MXMyNTdqb2lua3dzeg==
 
 
